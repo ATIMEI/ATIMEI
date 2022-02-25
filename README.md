@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ATIMEI
+- 👀 I’m interested in metaverse. 
+- 🌱 I’m currently working on designing an educaitional social metaverse for exchange of skills, knowledge through stories at a position where the host has been to, and people who wants to go. 
+- 💞️ I’m looking to collaborate on designing this ATIMEI world, I have been working on this project for 15 years for searching the truth of real education. 
+- 📫 You can find me through mengjie0103@sina.com, or you can call my Chinese number +86 13563940103.
